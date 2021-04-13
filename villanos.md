@@ -7,3 +7,4 @@
 * Darkseid
 * Deathstroke
 * Harley Queen
+* Dessad

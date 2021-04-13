@@ -7,4 +7,4 @@
 5. Conseguir provisiones para el equipo
 6. Acabar con darkseid
 7. Perdir ayuda a flash
-
+8. Proteger las cajas madre
