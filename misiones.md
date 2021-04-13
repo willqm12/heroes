@@ -4,5 +4,7 @@
 2. Crear la liga de la justicia
 3. Buscar nuevos miembros
 4. Acabar con darkseid, gatubela y joker
-5. Detener a deathstroke
-6. Conseguir provisiones para el equipo
+5. Conseguir provisiones para el equipo
+6. Acabar con darkseid
+7. Perdir ayuda a flash
+
