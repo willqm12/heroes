@@ -4,3 +4,5 @@
 * Joker
 * Gatubela
 * Hiedra Venenosa
+* Darkseid
+* Deathstroke
