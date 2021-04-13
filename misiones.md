@@ -8,3 +8,6 @@
 6. Acabar con darkseid
 7. Perdir ayuda a flash
 8. Proteger las cajas madre
+9. Cooperar con la madre de las mazonas
+10. Perdir un prestamo a superman
+111. Sacar informacion secreta del joker 
