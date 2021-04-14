@@ -9,3 +9,4 @@
 * Chico Bestia
 * Detective Marciano
 * Linterna verde
+* Hermanos fantasticos
