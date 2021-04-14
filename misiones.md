@@ -10,4 +10,5 @@
 8. Proteger las cajas madre
 9. Cooperar con la madre de las mazonas
 10. Perdir un prestamo a superman
-111. Sacar informacion secreta del joker 
+11. Sacar informacion secreta del joker 
+12. Salvar personas secuestradas por el joker
